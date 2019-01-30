@@ -1,5 +1,0 @@
-# ICT-game
-
-
-
-Hoi
